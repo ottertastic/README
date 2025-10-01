@@ -12,7 +12,7 @@ micah / comet , either is fine
 
 
 
-he / they prns
+she /he / they prns
 
 i like rdr (obviously) my favs r micah, dutch, bill, kieran, sean , trelawny and arthur
 

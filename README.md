@@ -1,2 +1,2 @@
 # README
-Hi go here [link text](https://ottertasticponytown.straw.page/)
+Hi go here [my supa cool strawpage](https://ottertasticponytown.straw.page/)
